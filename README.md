@@ -1,0 +1,2 @@
+# search_from_dekirudake_scratch
+search_from_dekirudake_scratch_nikkiの成果の部分
